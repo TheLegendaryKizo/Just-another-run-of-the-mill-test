@@ -3,5 +3,5 @@ Don't expect anything good, but if you find something you like, feel free to tak
 
 *an empty collection, but a collection nonetheless.
 
-Enjoy your stay-
+Enjoy your stay,
 The Legendary Kizo
