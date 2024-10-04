@@ -1,5 +1,5 @@
 This be a collection* of tiny projects the gang and I made-
-Don't expect anything good, but if you find something you like, feel free to take it for absolutely anythin' (no strings attached, and no credit needed).
+Don't expect anything good, but if you find something you like, feel free to take it for absolutely anything (no strings attached, and no credit needed).
 
 *an empty collection, but a collection nonetheless.
 
