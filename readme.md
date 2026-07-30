@@ -1,7 +1,7 @@
 This be a collection* of tiny projects the gang and I made-
 Don't expect anything good, but if you find something you like, feel free to take it for absolutely anything (no strings attached, and no credit needed).
 
-*an empty collection, but a collection nonetheless.
+*an (almost) empty collection, but a collection nonetheless.
 
 Enjoy your stay,
 The Legendary Kizo
